@@ -1,2 +1,2 @@
-# st.johns-catholic-primary
-St. Johns Catholic Primary School
+# st.johns-catholic-primary-tokarara
+St. Johns Catholic Primary School, Tokarara
